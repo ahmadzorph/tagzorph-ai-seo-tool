@@ -1,3 +1,4 @@
+**Official Website & Blog:** [Ahmad Zorph Profile](https://ahmadzorph.blogspot.com/)
 # 🚀 TAGZORPH AI – THE ULTIMATE ELITE INTELLIGENCE SUITE FOR CONTENT CREATORS
 
 ### *The Most Powerful, Privacy‑First, Algorithm‑Driven Toolkit for YouTube, TikTok, Instagram, Facebook & Beyond*
